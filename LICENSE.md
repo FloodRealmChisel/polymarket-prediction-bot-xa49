@@ -1,4 +1,4 @@
-# 
+# custom Polymarket Strategy | scalping-strategies + high-frequency-trading offers the most advanced Polymarket strategy, with scalping-strategies and high-frequency-trading. Ideal
 
 
 
